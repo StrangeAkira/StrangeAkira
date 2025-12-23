@@ -11,9 +11,7 @@ Feel free to dni if i ever make you feel uncomf or tell if i do!
 
    ## DNI
    over 18 and under 12 at most |
-   freaky people | 
    rascists... |
-brainrotted people |
 
    ## ![Image](https://github.com/user-attachments/assets/3a5c221a-8c1f-47c7-a7de-1695d67b77cf)
   
