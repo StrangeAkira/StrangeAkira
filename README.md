@@ -20,4 +20,4 @@ Feel free to dni if i ever make you feel uncomf or tell if i do!
   ![Image](https://github.com/user-attachments/assets/a9d31daf-6858-41b9-bb30-c3e2356ebb3f)
   
   i likes:
-     Ninjago - DoD - crk - phighting - forsaken - DW | ALL FANDOMS DNI (except ninjago :])
+     Ninjago - DoD - crk - phighting - forsaken - DW - Guts n bPowder | ALL FANDOMS DNI (except ninjago :])
