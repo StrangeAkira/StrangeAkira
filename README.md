@@ -4,7 +4,7 @@
   
    Some basic info : 4teen | Bi/cupiosxual | She/Her They/Them - F
    
-  I hav many names but call me Akira ! 
+  I hav many names but call me Akira! 
 
   C + H is welcomed (if i'm not running around map)
 Feel free to dni if i ever make you feel uncomf or tell me if i do! 
