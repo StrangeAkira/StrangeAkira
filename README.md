@@ -16,8 +16,3 @@ Feel free to dni if i ever make you feel uncomf or tell if i do!
    ## ![Image](https://github.com/user-attachments/assets/3a5c221a-8c1f-47c7-a7de-1695d67b77cf)
   
   Meow
-  
-  ![Image](https://github.com/user-attachments/assets/a9d31daf-6858-41b9-bb30-c3e2356ebb3f)
-  
-  i likes:
-     Ninjago - DoD - crk - phighting - forsaken - DW - Guts n bPowder | ALL FANDOMS DNI (except ninjago :])
